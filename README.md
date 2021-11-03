@@ -1,6 +1,6 @@
 The Migthy Architect
 
-https://i.imgur.com/4nHbxIu.gif
+[https://i.imgur.com/4nHbxIu.gif]
 
 About
 
